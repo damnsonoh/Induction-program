@@ -47,4 +47,6 @@ Later, we regrouped in the auditorium for a talk by Mrs. Shaffy Makkar, who spok
 Her engaging and lively presentation made the session both educational and entertaining, encouraging many of us — including myself — to take active interest in healthier food choices.
 
 The day ended with a renewed sense of unity and awareness, especially around healthy living. As a first-year student, every day brings new surprises and learning opportunities, and I’m looking forward to embracing all the experiences that lie ahead.
+# Induction Program – Day 5
 
+# Date – 06 August, 2025
