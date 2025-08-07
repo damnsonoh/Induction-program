@@ -35,4 +35,16 @@ The third day of college began with an interactive session by the **Causmic Club
 Next, **Dr. Priya Darshani** conducted a session on *Human Resource Values*, continuing from her previous lecture. the session was very informative
 
 After the break, we had our first **subject-wise classes**. The English lecture by **Prof. Nisha** was engaging and interactive. Later, we attended a **P2P (Peer-to-Peer) session** where seniors introduced the basics of **C++ programming** and shared code snippets for hands-on practice.
+# Induction Program – Day 4
+
+# Date – 05 August, 2025
+The fourth day of college began in an unexpected way. Just before the scheduled lecture in the auditorium, the entire plan changed abruptly. I had arrived in the afternoon, full of anticipation, only to find out that each branch was now being led to its respective classroom.
+
+Amidst the sudden shift, we were welcomed by our seniors who were waiting enthusiastically. During the one-hour class session, we introduced ourselves one by one, helping to break the ice and get to know our new friends. Our seniors also gave us an overview of upcoming events and various club activities, setting the tone for our university life.
+
+Later, we regrouped in the auditorium for a talk by Mrs. Shaffy Makkar, who spoke passionately about the benefits of millets as a superfood. She explained their nutritional value, especially their protein content, and gave us interesting insights into their culinary history.
+
+Her engaging and lively presentation made the session both educational and entertaining, encouraging many of us — including myself — to take active interest in healthier food choices.
+
+The day ended with a renewed sense of unity and awareness, especially around healthy living. As a first-year student, every day brings new surprises and learning opportunities, and I’m looking forward to embracing all the experiences that lie ahead.
 
