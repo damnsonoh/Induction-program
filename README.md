@@ -58,4 +58,4 @@ Our next session was led by fitness specialist Mr. Manpreet Singh, who spoke abo
 After a short break, we attended our first physics lecture with Prof. Jaspreet Singh. He walked us through the syllabus for the semester and introduced us to the basics of electromagnetism, sparking interest for the topics ahead. The final session of the day focused on P2P (Peer-to-Peer) learning, where our seniors guided us through the fundamentals of C++ programming. By the end of the day, we felt enriched with new knowledge, motivated to apply what we had learned, and eager for the journey that lay ahead.
 # Induction Program – Day 6
 
-# Date – 06 August, 2025
+# Date – 07 August, 2025
