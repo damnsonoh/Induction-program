@@ -60,6 +60,15 @@ After a short break, we attended our first physics lecture with Prof. Jaspreet S
 
 # Date – 07 August, 2025
 
+The sixth day of the induction program kicked off with subject-specific lectures, giving the day a strong academic start. The first class was conducted by Prof. Jaspreet Singh from the Physics department, who introduced us to the topic of partial differentiation. He explained its practical applications in solving problems and provided a few practice exercises. He also stressed the importance of revisiting Class 11 and 12 Physics concepts to build a solid base for upcoming topics.
+
+Following this, we attended our Mathematics lecture with Prof. Sandeep Kaur Gill. She informed us that the semester would begin with the study of differential equations. The session started with a few questions to gauge our existing knowledge, after which she unexpectedly asked about our Class 12 board exam marks in Mathematics. The lecture proved valuable as she clarified earlier concepts while offering fresh perspectives and interpretations on certain topics.
+
+After a short break, we assembled in the auditorium for a session by Dr. Lakhvir Singh Khana, incharge of the Central Multifacilitated Learning department. He walked us through various online learning opportunities focusing on soft skills and personality development. One highlight was learning that several high-quality courses, including some linked to IITs, could be accessed at little to no cost. This opened our eyes to the wealth of resources available outside traditional classroom learning.
+
+The final talk of the day came from Dr. Jasvir Singh Grewal, incharge of the National Service Scheme (NSS). He explained the significance of NSS in fostering socially responsible citizens and outlined the organization’s mission and values. He encouraged us to get involved in community service. To close the day on a lighter note, a short comedy act was performed, leaving everyone smiling and ending the day in a cheerful mood.
+
+
 # Induction Program – Day 7
 # Date – 08 August, 2025
 
