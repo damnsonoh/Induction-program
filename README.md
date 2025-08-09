@@ -50,3 +50,12 @@ The day ended with a renewed sense of unity and awareness, especially around hea
 # Induction Program – Day 5
 
 # Date – 06 August, 2025
+
+The fifth day of the induction program offered a well-rounded mix of informative talks and engaging learning experiences. The day opened with an address by Dr. Parminder Singh, Dean of Student Welfare, held in the auditorium. He provided us with a detailed overview of the college, including its various facilities, clubs, and upcoming youth festivals. His insights highlighted how these activities create opportunities for students to collaborate, explore their talents, and grow as individuals.
+
+Our next session was led by fitness specialist Mr. Manpreet Singh, who spoke about the importance of maintaining a healthy lifestyle, especially for engineering students. He emphasized proper nutrition, regular exercise, and staying away from harmful substances such as steroids and drugs. The session was highly interactive, with students asking questions on topics like protein intake, sugar management, and the mental aspects of fitness. Before concluding, he encouraged everyone to pledge to remain drug-free.
+
+After a short break, we attended our first physics lecture with Prof. Jaspreet Singh. He walked us through the syllabus for the semester and introduced us to the basics of electromagnetism, sparking interest for the topics ahead. The final session of the day focused on P2P (Peer-to-Peer) learning, where our seniors guided us through the fundamentals of C++ programming. By the end of the day, we felt enriched with new knowledge, motivated to apply what we had learned, and eager for the journey that lay ahead.
+# Induction Program – Day 6
+
+# Date – 06 August, 2025
