@@ -59,3 +59,14 @@ After a short break, we attended our first physics lecture with Prof. Jaspreet S
 # Induction Program – Day 6
 
 # Date – 07 August, 2025
+
+# Induction Program – Day 7
+# Date – 08 August, 2025
+
+The seventh day of the induction program stood out from the rest, offering a more practical and exploratory experience. We were instructed to report at 10:00 AM, with the venue set as the workshop area. I managed to find my way there with the help of a kind senior I met along the way. At the entrance, a notice board displayed the list of branches along with the number of students assigned to each respective workshop.
+
+Upon entering, I discovered a series of buildings, each dedicated to a specific craft—smithing, welding, carpentry, and more. I was genuinely impressed by the wide range of facilities the college offers and the variety of skills we will have the chance to learn over the next four years. My designated workshop was the machinery section. Inside, I found an array of machines. While I wasn’t entirely surprised—given that my father owns a factory—I had never personally operated such equipment before.
+
+We were asked to take our seats and wait for all students to arrive. The instructor encouraged us to look around and familiarize ourselves with the machines, though we weren’t allowed to use them yet. Later, he showed us a detailed design sheet of a piece of equipment we will be manufacturing in the near future, giving us a glimpse of the hands-on work ahead.
+
+Once the workshop activities concluded, we were advised to explore the campus and locate specific classrooms and facilities. This exercise was intended to ensure that, once regular classes begin, we can navigate the campus with ease and without any inconvenience.
